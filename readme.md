@@ -1,0 +1,1 @@
+This is an ellustration of availabe airbnb rooms within Milimani,Kisumu County
